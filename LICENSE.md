@@ -1,4 +1,4 @@
-# 
+# exclusive 1Password for PC | 1Password for Windows Extension | credit-card-storage + dark-web-monitoring offers the most advanced 1Password for PC | 1Password for Windows
 
 
 
